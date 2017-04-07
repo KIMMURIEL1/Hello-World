@@ -1,3 +1,3 @@
 # Hello-World
 Hey all.
-My name is Kimmuriel and i need more parcitec in this. :D
+My name is Kimmuriel and i need more parcitce in this. :D
